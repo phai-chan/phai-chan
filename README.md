@@ -16,8 +16,8 @@
   <br>
   C+H always!
   <br><br>
-  <img src=https://graphic.neocities.org/Wetter-111.gif width=10%>
-<br>
+  <img src=https://graphic.neocities.org/Wetter-111.gif width=5%>
+<br><br>
   
 ㅤ[rentry](https://ayakashibakeneko.atabook.org/)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
 <br>
