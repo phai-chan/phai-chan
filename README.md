@@ -19,7 +19,7 @@
   <img src=https://graphic.neocities.org/Wetter-111.gif width=5%>
 <br><br>
   
-ㅤ[rentry](https://ayakashibakeneko.atabook.org/)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
+ㅤ[rentry](https://rentry.co/nezu-mi)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
 <br>
 ∘₊✧ —————ㅤ✩ㅤ————— ✧₊∘
 </p>
