@@ -17,10 +17,9 @@
   C+H always!
   <br><br>
   <img src=https://graphic.neocities.org/Wetter-111.gif width=5%>
-<br>
+<br><br>
   
 ㅤ[rentry](https://ayakashibakeneko.atabook.org/)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
-<br>
 <br>
 ∘₊✧ —————ㅤ✩ㅤ————— ✧₊∘
 </p>
