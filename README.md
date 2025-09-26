@@ -8,13 +8,15 @@
 <br><br>
   <img src=https://i.imgur.com/6SSbYOb.png width=20%>
 <br><br>
-  I like phainon and I like afking in ponytown.
+  Currently inactive
   <br>
-  Check out my rentry for more about me.
+  Will be back at some point
   <br>
-  Whisper me or sign my ata
+  Sign ata or text me on discord if needed
   <br>
-  C+H always!
+  dc: trufflealexs
+  <br>
+  
   <br><br>
   <img src=https://graphic.neocities.org/Wetter-111.gif width=10%>
 <br>
