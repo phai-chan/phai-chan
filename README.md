@@ -8,19 +8,19 @@
 <br><br>
   <img src=https://i.imgur.com/6SSbYOb.png width=20%>
 <br><br>
-  Currently inactive
+   Alexs - 19, he/him
   <br>
-  Will be back at some point
+  Afk and offtab a lot,
   <br>
-  Sign ata or text me on discord if needed
+  Leave a message!
   <br>
-  dc: trufflealexs
+  More info below :)
   <br>
   <br>
   <img src=https://graphic.neocities.org/Wetter-111.gif width=10%>
 <br>
   
-ㅤ[rentry](https://rentry.co/nezu-mi)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
+ㅤ[strawpage](https://cryingandwanking.straw.page/)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)
 <br>
 ∘₊✧ —————ㅤ✩ㅤ————— ✧₊∘
 </p>
