@@ -17,7 +17,6 @@
   <br>
   More info below
   <br>
-  <br>
   <img src=https://graphic.neocities.org/Wetter-111.gif width=10%>
 <br>
   
