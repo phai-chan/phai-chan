@@ -20,7 +20,7 @@
   <img src=https://graphic.neocities.org/Wetter-111.gif width=10%>
 <br>
   
-ㅤ[strawpage](https://cryingandwanking.straw.page/)  ㅤㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)ㅤ
+ㅤ[strawpage](https://cryingandwanking.straw.page/)  ㅤㅤㅤ [atabook](https://ayakashibakeneko.atabook.org/)ㅤ
 <br>
 ∘₊✧ —————ㅤ✩ㅤ————— ✧₊∘
 </p>
